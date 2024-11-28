@@ -1,1 +1,1 @@
-# Cursor-something-made-by-Cursor
+# Cursor-made
